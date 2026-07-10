@@ -1,6 +1,6 @@
 <p align="center">7𝘵𝘦𝘦𝘯 | 𝘪𝘴𝘧𝘱-𝘵,2𝘸1 | 𝘩𝘦/𝘩𝘪𝘮
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com/?font=Cormorant+Garamond&size=30&duration=7100&pause=4300&color=a8a8a8&center=true&vCenter=true&width=900&lines=If+your+dream+is+to+save+the+common+people,+then+my+dream+is+only+you.">
+  <img src="https://readme-typing-svg.demolab.com/?font=Cormorant+Garamond&size=30&duration=7100&pause=4300&color=616161&center=true&vCenter=true&width=900&lines=If+your+dream+is+to+save+the+common+people,+then+my+dream+is+only+you.">
 </p>
 
 
@@ -13,5 +13,10 @@ Click for Linkss/Socials >> [![STRAWPAGE](https://img.shields.io/badge/STRAWPAGE
 <p align="center"> 𝘿𝙤 𝙉𝙤𝙩 𝙄𝙣𝙩𝙚𝙧𝙖𝙘𝙩 (𝘿𝙉𝙄):
  <p align="center">𝘏𝘰𝘮𝘰𝘱𝘩𝘰𝘣𝘦𝘴, 𝘙𝘢𝘤𝘪𝘴𝘵𝘴, 𝘗𝘦𝘥𝘴, 𝘛𝘳𝘶𝘮𝘱 𝘴𝘶𝘱𝘱𝘰𝘳𝘵𝘦𝘳𝘴, 𝘛𝘳𝘢𝘯𝘴𝘱𝘩𝘰𝘣𝘦𝘴, 𝘈𝘣𝘭𝘦𝘪𝘴𝘵𝘴, 𝘔𝘪𝘴𝘰𝘨𝘺𝘯𝘪𝘴𝘵𝘴, 𝘡𝘰𝘰𝘱𝘩𝘪𝘭𝘦𝘴, 𝘦𝘵𝘤 𝘢𝘯𝘥 𝘱𝘱𝘭 𝘸𝘩𝘰 𝘴𝘦𝘦 𝘯𝘰 𝘸𝘳𝘰𝘯𝘨 𝘪𝘯/𝘴𝘶𝘱𝘱𝘰𝘳𝘵 𝘵𝘩𝘪𝘴 𝘴𝘵𝘶𝘧𝘧, 𝘭𝘪𝘵𝘦𝘳𝘢𝘭𝘭𝘺 𝘫𝘶𝘴𝘵 𝘸𝘦𝘪𝘳𝘥𝘰𝘴(𝘵𝘩𝘦 𝘣𝘢𝘥 𝘬𝘪𝘯𝘥) 𝘥𝘯𝘪 𝘵𝘰 𝘳𝘰𝘭𝘦𝘱𝘭𝘢𝘺..
 <p align="center"> 𝘽𝙚 𝙔𝙤𝙪𝙧 𝙁𝙧𝙞𝙚𝙣𝙙 (𝘽𝙔𝙁):
+<p align="center"> 𝘐 𝘴𝘰𝘮𝘦𝘵𝘪𝘮𝘦𝘴 𝘧𝘰𝘳𝘨𝘦𝘵 𝘵𝘰 𝘳𝘦𝘱𝘭𝘺 𝘰𝘳 𝘳𝘦𝘱𝘭𝘺 𝘭𝘢𝘵𝘦 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘰𝘧 𝘦𝘹𝘢𝘮𝘴/𝘰𝘵𝘩𝘦𝘳 𝘳𝘦𝘢𝘴𝘰𝘯𝘴, 𝘈𝘚𝘛𝘵𝘪𝘮𝘦, Moodswings(im rarely pissy but i'd just go quiet or be dry) I 𝘶𝘴𝘦 𝘰𝘧𝘧𝘦𝘯𝘴𝘪𝘷𝘦 𝘭𝘢𝘯𝘨𝘶𝘢𝘨𝘦 (𝘯𝘰𝘵 𝘤𝘰𝘯𝘴𝘵𝘢𝘯𝘵𝘭𝘺, if uncomf i WILL stop.), 𝘧𝘳𝘦𝘢𝘬𝘺𝘪𝘴𝘩? (Again, if uncomf i WILL stop i'm not some weirdo Iswr omh)
 
 I'm too lazy so this is a big wip
+
+<p align="center">
+<img width="300" height="251" alt="image" src="https://github.com/user-attachments/assets/6c227f79-a579-4e10-9976-78f46b59099b" />
+
