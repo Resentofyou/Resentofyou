@@ -23,7 +23,7 @@
 </p>
 
 <p align="center">𝐋𝐨𝐯𝐞 𝐦𝐲 𝐟𝐫𝐢𝐞𝐧𝐝𝐬... (𝐟𝐨𝐫 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧) : 
-<p align="center">𝙻𝚎𝚗𝚊(Uswa), Nica, 𝙺𝚢𝚘, 𝙸𝚣𝚞, 𝙸𝚜𝚣𝚢 | 𝚂..🤍
+<p align="center">𝘓𝘦𝘯𝘢, 𝘕𝘪𝘤𝘢, 𝘐𝘴𝘻𝘺, 𝘐𝘻𝘶, 𝘒𝘺𝘰, 𝘟𝘢𝘷𝘪(𝘒𝘠𝘚𝘠𝘚𝘠𝘚) | 𝘚..♡
 <p align="center">ᴵˢᶻʸ ᴵ ʰᵃᵗᵉ ᵘ ᴵˢᶻʸ
 
 <p align="center"><img width="490" height="251" alt="image" src="https://github.com/user-attachments/assets/88910748-16d5-4899-bc31-f68c2fefd376" />
