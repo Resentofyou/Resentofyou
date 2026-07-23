@@ -4,7 +4,7 @@
 </p>
 
 
-𝘊𝘭𝘪𝘤𝘬 𝘧𝘰𝘳 𝘓𝘪𝘯𝘬𝘴/𝘚𝘰𝘤𝘪𝘢𝘭𝘴 >> [![STRAWPAGE](https://img.shields.io/badge/STRAWPAGE-A02A24?style=for-the-badge&labelColor=979797&color=979797)](https://resentofyou.straw.page/)    [![Pronouns](https://img.shields.io/badge/PRONOUNS_PAGE-A02A24?style=for-the-badge&labelColor=767676&color=767676)](https://en.pronouns.page/@Resent)    [![PINTEREST](https://img.shields.io/badge/PINTEREST-A02A24?style=for-the-badge&labelColor=656565&color=656565)](https://www.pinterest.com/Resentofyou/)    [![SPOTIFY](https://img.shields.io/badge/SPOTIFY-A02A24?style=for-the-badge&labelColor=545454&color=545454)](https://open.spotify.com/user/315pfr6p5sigzzdp6jlge4pip2fa)  [![INSTAGRAM](https://img.shields.io/badge/INSTAGRAM-A02A24?style=for-the-badge&labelColor=545454&color=545454)](https://www.instagram.com/resentofu/)  [![TIKTOK](https://img.shields.io/badge/TIKTOK-A02A24?style=for-the-badge&labelColor=545454&color=545454)](https://www.tiktok.com/@resentcfyou)
+𝘊𝘭𝘪𝘤𝘬 𝘧𝘰𝘳 𝘓𝘪𝘯𝘬𝘴s >>[![ATABOOK](https://img.shields.io/badge/ATABOOK-A02A24?style=for-the-badge&labelColor=C6C6C6&color=C6C6C6)](https://resentofyou.atabook.org/)      [![STRAWPAGE](https://img.shields.io/badge/STRAWPAGE-A02A24?style=for-the-badge&labelColor=979797&color=979797)](https://resentofyou.straw.page/)    [![Pronouns](https://img.shields.io/badge/PRONOUNS_PAGE-A02A24?style=for-the-badge&labelColor=767676&color=767676)](https://en.pronouns.page/@Resent)    [![PINTEREST](https://img.shields.io/badge/PINTEREST-A02A24?style=for-the-badge&labelColor=656565&color=656565)](https://www.pinterest.com/Resentofyou/)    [![SPOTIFY](https://img.shields.io/badge/SPOTIFY-A02A24?style=for-the-badge&labelColor=545454&color=545454)](https://open.spotify.com/user/315pfr6p5sigzzdp6jlge4pip2fa)  [![INSTAGRAM](https://img.shields.io/badge/INSTAGRAM-A02A24?style=for-the-badge&labelColor=545454&color=545454)](https://www.instagram.com/resentofu/)  [![TIKTOK](https://img.shields.io/badge/TIKTOK-A02A24?style=for-the-badge&labelColor=545454&color=545454)](https://www.tiktok.com/@resentcfyou)
 
 <p align="center">(𝐒𝐂𝐑𝐎𝐋𝐋 𝐅𝐎𝐑 𝐌𝐎𝐑𝐄 𝐈𝐍𝐅𝐎!!)
 <img width="922" height="516" alt="image" src="https://github.com/user-attachments/assets/a876dc5a-5adf-43ea-9afa-6ede95e91f80" />
@@ -42,10 +42,11 @@
 
 <p align="center"> ──────────── ୨୧ ────────────
 <p align="center">𝗦𝗽𝗲𝗰𝗶𝗳𝗶𝗰𝗮𝗹𝗹𝘆 𝗙𝗼𝗿 𝗣𝗼𝗻𝘆𝘁𝗼𝘄𝗻 :
+ <p align="center"> 
+ 𝘛𝘩𝘦 𝘱𝘰𝘯𝘺 cosplays 𝘵𝘩𝘢𝘵 𝘐 𝘮𝘢𝘪𝘯𝘭𝘺 𝘶𝘴𝘦 : Wifies,Parrotx2,Wemmbu,Sallyface
   
-* 𝘛𝘩𝘦 𝘱𝘰𝘯𝘺 𝘵𝘩𝘢𝘵 𝘐 𝘮𝘢𝘪𝘯𝘭𝘺 𝘶𝘴𝘦 (𝘚𝘢𝘭𝘭𝘺𝘧𝘢𝘤𝘦 𝘤𝘰𝘴) >>
-  
- 𝘉𝘶𝘵 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘪'𝘮 𝘯𝘰𝘵 𝘶 𝘸𝘰𝘶𝘭𝘥 𝘴𝘵𝘪𝘭𝘭 𝘴𝘦𝘦 𝘮𝘺 𝘨𝘪𝘵𝘩𝘶𝘣 𝘰𝘯 𝘮𝘺 𝘱𝘰𝘯𝘺<p align="right"><img width="260" height="280" alt="44" src="https://github.com/user-attachments/assets/caa70cf4-dbc9-4890-b7bb-320aede50315" />
+ <p align="center">But even if im not using any of these, my github would be attached,
+
 
 * 𝘚𝘢𝘧𝘦 𝘴𝘦𝘳𝘷𝘦𝘳 #2 ⸝⸝ 𝘜𝘴𝘶𝘢𝘭𝘭𝘺 𝘢𝘵 𝘵𝘩𝘦 𝘣𝘦𝘢𝘤𝘩 𝘥𝘰𝘤𝘬𝘴 (𝘣𝘰𝘵𝘵𝘰𝘮 𝘰𝘧 𝘵𝘩𝘦 𝘮𝘢𝘱) 𝘯𝘰𝘵 𝘥𝘰𝘤𝘬𝘴 𝘵𝘩𝘦 𝘢𝘳𝘦𝘢
 
