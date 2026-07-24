@@ -22,8 +22,6 @@
   <img src="https://readme-typing-svg.demolab.com/?font=Cormorant+Garamond&size=30&duration=7100&pause=4300&color=9d9fa1&center=true&vCenter=true&width=900&lines=I+am+forever+your+most+devoted+believer.">
 </p>
 
-<p align="center">𝐋𝐨𝐯𝐞 𝐦𝐲 𝐟𝐫𝐢𝐞𝐧𝐝𝐬... (𝐟𝐨𝐫 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧!!) : 
-<p align="center">𝘓𝘦𝘯𝘢, 𝘕𝘪𝘤𝘢, 𝘐𝘴𝘻𝘺, 𝘐𝘻𝘶, 𝘒𝘺𝘰 | 𝘚..♡
 <p align="center">ᴵ ʰᵃᵗᵉ ᵘ ᴵˢᶻʸ
 
 <p align="center"><img width="490" height="251" alt="image" src="https://github.com/user-attachments/assets/88910748-16d5-4899-bc31-f68c2fefd376" />
