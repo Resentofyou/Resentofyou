@@ -45,7 +45,7 @@
   
  <p align="center">But even if im not using any of these, my github would be attached,
 
-* 𝘚𝘢𝘧𝘦 𝘴𝘦𝘳𝘷𝘦𝘳 #1 ⸝⸝ 𝘜𝘴𝘶𝘢𝘭𝘭𝘺 𝘢𝘵  MCYT 𝘩𝘪𝘭𝘭
+* 𝘚𝘢𝘧𝘦 𝘴𝘦𝘳𝘷𝘦𝘳 #1 ⸝⸝ 𝘜𝘴𝘶𝘢𝘭𝘭𝘺 w/ friends so random places
 
 * 𝘚𝘢𝘧𝘦 𝘴𝘦𝘳𝘷𝘦𝘳 #2 ⸝⸝ 𝘜𝘴𝘶𝘢𝘭𝘭𝘺 𝘢𝘵 𝘵𝘩𝘦 𝘣𝘦𝘢𝘤𝘩 𝘥𝘰𝘤𝘬𝘴 (𝘣𝘰𝘵𝘵𝘰𝘮 𝘰𝘧 𝘵𝘩𝘦 𝘮𝘢𝘱)
 
