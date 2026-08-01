@@ -41,7 +41,7 @@
 <p align="center"> ──────────── ୨୧ ────────────
 <p align="center">𝗦𝗽𝗲𝗰𝗶𝗳𝗶𝗰𝗮𝗹𝗹𝘆 𝗙𝗼𝗿 𝗣𝗼𝗻𝘆𝘁𝗼𝘄𝗻 :
  <p align="center"> 
- 𝘛𝘩𝘦 𝘱𝘰𝘯𝘪𝘦𝘴/𝘤𝘰𝘴𝘱𝘭𝘢𝘺𝘴 𝘵𝘩𝘢𝘵 𝘐 𝘮𝘢𝘪𝘯𝘭𝘺 𝘶𝘴𝘦 : 𝘞𝘪𝘧𝘪𝘦𝘴,𝘗𝘢𝘳𝘳𝘰𝘵𝘹2,𝘞𝘦𝘮𝘮𝘣𝘶,𝘚𝘢𝘭𝘭𝘺𝘧𝘢𝘤𝘦,𝘋3𝘳𝘭𝘰𝘳𝘥3,𝘖𝘵𝘩𝘦𝘳
+ 𝘛𝘩𝘦 𝘱𝘰𝘯𝘪𝘦𝘴/𝘤𝘰𝘴𝘱𝘭𝘢𝘺𝘴 𝘵𝘩𝘢𝘵 𝘐 𝘮𝘢𝘪𝘯𝘭𝘺 𝘶𝘴𝘦 : 𝘞𝘪𝘧𝘪𝘦𝘴,𝘗𝘢𝘳𝘳𝘰𝘵𝘹2,𝘞𝘦𝘮𝘮𝘣𝘶,𝘚𝘢𝘭𝘭𝘺𝘧𝘢𝘤𝘦,Judelow,𝘖𝘵𝘩𝘦𝘳
   
  <p align="center">But even if im not using any of these, my github would be attached,
 
