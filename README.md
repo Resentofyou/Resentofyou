@@ -1,4 +1,5 @@
-<p align="center">7𝘵𝘦𝘦𝘯 | 𝘪𝘴𝘧𝘱-𝘵 . 2𝘸1 | 𝘩𝘦/𝘩𝘪𝘮
+<p align="center">7𝘵𝘦𝘦𝘯 | 𝘪𝘴𝘧𝘱-𝘵 . 2𝘸1 | 𝘩𝘦/𝘩𝘪𝘮 |  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d1190456-1bcc-4527-9348-c4268625a2eb" />
+
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com/?font=Cormorant+Garamond&size=30&duration=7100&pause=4300&color=5b6ef6&center=true&vCenter=true&width=900&lines=YOUR+ENTIRE+CITY+IS+GONNA+BE+TURNED+INTO+A+CRATER!!">
 </p>
