@@ -1,58 +1,68 @@
 <p align="center">7𝘵𝘦𝘦𝘯 | 𝘪𝘴𝘧𝘱-𝘵 . 2𝘸1 | 𝘩𝘦/𝘩𝘪𝘮
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com/?font=Cormorant+Garamond&size=30&duration=7100&pause=4300&color=9d9fa1&center=true&vCenter=true&width=900&lines=If+your+dream+is+to+save+the+common+people..+then+my+dream+is+only+you.">
+  <img src="https://readme-typing-svg.demolab.com/?font=Cormorant+Garamond&size=30&duration=7100&pause=4300&color=5b6ef6&center=true&vCenter=true&width=900&lines=YOUR+ENTIRE+CITY+IS+GONNA+BE+TURNED+INTO+A+CRATER!!">
 </p>
 
 
-𝘊𝘭𝘪𝘤𝘬 (Links) >>[![ATABOOK](https://img.shields.io/badge/ATABOOK-A02A24?style=for-the-badge&labelColor=C6C6C6&color=C6C6C6)](https://resentofyou.atabook.org/)      [![STRAWPAGE](https://img.shields.io/badge/STRAWPAGE-A02A24?style=for-the-badge&labelColor=979797&color=979797)](https://resentofyou.straw.page/)    [![Pronouns](https://img.shields.io/badge/PRONOUNS_PAGE-A02A24?style=for-the-badge&labelColor=767676&color=767676)](https://en.pronouns.page/@Resent)    [![PINTEREST](https://img.shields.io/badge/PINTEREST-A02A24?style=for-the-badge&labelColor=656565&color=656565)](https://www.pinterest.com/Resentofyou/)    [![SPOTIFY](https://img.shields.io/badge/SPOTIFY-A02A24?style=for-the-badge&labelColor=545454&color=545454)](https://open.spotify.com/user/315pfr6p5sigzzdp6jlge4pip2fa)  [![INSTAGRAM](https://img.shields.io/badge/INSTAGRAM-A02A24?style=for-the-badge&labelColor=545454&color=545454)](https://www.instagram.com/resentofu/)  [![TIKTOK](https://img.shields.io/badge/TIKTOK-A02A24?style=for-the-badge&labelColor=545454&color=545454)](https://www.tiktok.com/@resentcfyou)
+𝘊𝘭𝘪𝘤𝘬 4 Socials!! >>[![ATABOOK](https://img.shields.io/badge/ATABOOK-A02A24?style=for-the-badge&labelColor=f3e9f4&color=f3e9f4)](https://resentofyou.atabook.org/)      [![STRAWPAGE](https://img.shields.io/badge/STRAWPAGE-A02A24?style=for-the-badge&labelColor=a495ed&color=a495ed)](https://resentofyou.straw.page/)    [![Pronouns](https://img.shields.io/badge/PRONOUNS_PAGE-A02A24?style=for-the-badge&labelColor=7878f3&color=7878f3)](https://en.pronouns.page/@Resent)    [![PINTEREST](https://img.shields.io/badge/PINTEREST-A02A24?style=for-the-badge&labelColor=526bf5&color=526bf5)](https://www.pinterest.com/Resentofyou/)    [![SPOTIFY](https://img.shields.io/badge/SPOTIFY-A02A24?style=for-the-badge&labelColor=255be5&color=255be5)](https://open.spotify.com/user/315pfr6p5sigzzdp6jlge4pip2fa)  [![INSTAGRAM](https://img.shields.io/badge/INSTAGRAM-A02A24?style=for-the-badge&labelColor=2954bd&color=2954bd)](https://www.instagram.com/resentofu/)  [![TIKTOK](https://img.shields.io/badge/TIKTOK-A02A24?style=for-the-badge&labelColor=2451b6&color=2451b6)](https://www.tiktok.com/@resentcfyou)
 
-<p align="center">(𝐒𝐂𝐑𝐎𝐋𝐋 𝐅𝐎𝐑 𝐌𝐎𝐑𝐄 𝐈𝐍𝐅𝐎!!)
-<img width="922" height="516" alt="image" src="https://github.com/user-attachments/assets/a876dc5a-5adf-43ea-9afa-6ede95e91f80" />
+<p align="center">
+
+<img width="622" height="340" alt="wemmbuuuuu123" src="https://github.com/user-attachments/assets/9545cc03-7dc3-43aa-91be-3b8d3d19857b" />
 
 
-<p align="center"> 𝘿𝙤 𝙉𝙤𝙩 𝙄𝙣𝙩𝙚𝙧𝙖𝙘𝙩 (𝘿𝙉𝙄):
+<img src="https://readme-typing-svg.demolab.com/?font=Cormorant+Garamond&size=30&duration=7120&pause=4300&color=7778f2&center=true&vCenter=true&width=900&lines=Please+read!!+(Scroll)">
+</p>
+
+<p align="center"> 🟣 𝘿𝙤 𝙉𝙤𝙩 𝙄𝙣𝙩𝙚𝙧𝙖𝙘𝙩 (𝘿𝙉𝙄):
  <p align="center">𝘏𝘰𝘮𝘰𝘱𝘩𝘰𝘣𝘦𝘴, 𝘙𝘢𝘤𝘪𝘴𝘵𝘴, 𝘗𝘦𝘥𝘴, 𝘛𝘳𝘶𝘮𝘱 𝘴𝘶𝘱𝘱𝘰𝘳𝘵𝘦𝘳𝘴, 𝘛𝘳𝘢𝘯𝘴𝘱𝘩𝘰𝘣𝘦𝘴, 𝘈𝘣𝘭𝘦𝘪𝘴𝘵𝘴, 𝘔𝘪𝘴𝘰𝘨𝘺𝘯𝘪𝘴𝘵𝘴, 𝘡𝘰𝘰𝘱𝘩𝘪𝘭𝘦𝘴, 𝘦𝘵𝘤 𝘢𝘯𝘥 𝘱𝘱𝘭 𝘸𝘩𝘰 𝘴𝘦𝘦 𝘯𝘰 𝘸𝘳𝘰𝘯𝘨 𝘪𝘯/𝘴𝘶𝘱𝘱𝘰𝘳𝘵 𝘵𝘩𝘪𝘴 𝘴𝘵𝘶𝘧𝘧, 𝘫𝘶𝘴𝘵 𝘸𝘦𝘪𝘳𝘥𝘰𝘴(𝘵𝘩𝘦 𝘣𝘢𝘥 𝘬𝘪𝘯𝘥) 𝘥𝘯𝘪 𝘵𝘰 𝘳𝘰𝘭𝘦𝘱𝘭𝘢𝘺..
-<p align="center"> 𝘽𝙚 𝙔𝙤𝙪𝙧 𝙁𝙧𝙞𝙚𝙣𝙙 (𝘽𝙔𝙁):
+<p align="center"> 👾 𝘽𝙚 𝙔𝙤𝙪𝙧 𝙁𝙧𝙞𝙚𝙣𝙙 (𝘽𝙔𝙁):
 <p align="center"> 𝘐 𝘴𝘰𝘮𝘦𝘵𝘪𝘮𝘦𝘴 𝘧𝘰𝘳𝘨𝘦𝘵 𝘵𝘰 𝘳𝘦𝘱𝘭𝘺 𝘰𝘳 𝘳𝘦𝘱𝘭𝘺 𝘭𝘢𝘵𝘦 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘰𝘧 𝘦𝘹𝘢𝘮𝘴/𝘰𝘵𝘩𝘦𝘳 𝘳𝘦𝘢𝘴𝘰𝘯𝘴, 𝘈𝘚𝘛𝘵𝘪𝘮𝘦, Moodswings (im rarely pissy but i'd just go quiet or be dry) I 𝘶𝘴𝘦 𝘰𝘧𝘧𝘦𝘯𝘴𝘪𝘷𝘦 𝘭𝘢𝘯𝘨𝘶𝘢𝘨𝘦 (𝘯𝘰𝘵 𝘤𝘰𝘯𝘴𝘵𝘢𝘯𝘵𝘭𝘺, if uncomf I WILL stop.), will not int first
-<p align="center"> 𝗠𝗼𝗿𝗲 𝗔𝗯𝗼𝘂𝘁 𝗠𝗲 :
-<p align="center"> 𝘩𝘪𝘩𝘰𝘪𝘩𝘪 𝘪'𝘮 𝘐𝘴𝘢𝘢𝘤/𝘙𝘦𝘴𝘦𝘯𝘵 𝘐 𝘸𝘳𝘪𝘵𝘦 𝘪𝘯 𝘮𝘺 𝘧𝘳𝘦𝘦𝘵𝘪𝘮𝘦 𝘰𝘳 𝘸𝘩𝘦𝘯𝘦𝘷𝘦𝘳 𝘪𝘮 𝘪𝘯 𝘵𝘩𝘦 𝘮𝘰𝘰𝘥, 𝘢𝘮 𝘪𝘯𝘵𝘰 𝘢𝘭𝘰𝘵 𝘰𝘧 𝘵𝘩𝘪𝘯𝘨𝘴 𝘣𝘶𝘵 𝘸𝘰𝘯𝘵 𝘨𝘰 𝘪𝘯𝘵𝘰 𝘪𝘵 𝘤𝘶𝘻 𝘪𝘷𝘦 𝘨𝘰𝘯𝘦 𝘮𝘰𝘳𝘦 𝘪𝘯𝘵𝘰 𝘪𝘵 𝘰𝘯 𝘮𝘺 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦(𝘯𝘰𝘧𝘰𝘳𝘤𝘦 𝘵𝘰 𝘷𝘪𝘴𝘪𝘵 𝘮𝘰𝘴𝘵 𝘪𝘴 𝘩𝘦𝘳𝘦 𝘢𝘯𝘺𝘸𝘢𝘺) 𝘐 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘮𝘢𝘬𝘦 𝘮𝘦𝘢𝘯/𝘰𝘧𝘧𝘦𝘯𝘴𝘪𝘷𝘦 𝘫𝘰𝘬𝘦𝘴 𝘵𝘩𝘢𝘵 𝘴𝘰𝘮𝘦 𝘱𝘦𝘰𝘱𝘭𝘦 𝘸𝘰𝘶𝘭𝘥 𝘳𝘪𝘨𝘩𝘵𝘧𝘶𝘭𝘭𝘺 𝘧𝘪𝘯𝘥 𝘥𝘪𝘴𝘳𝘦𝘴𝘱𝘦𝘤𝘵𝘧𝘶𝘭, 𝘐𝘵'𝘴 𝘯𝘰𝘵 𝘢 𝘨𝘰𝘰𝘥 𝘵𝘳𝘢𝘪𝘵 𝘣𝘶𝘵 𝘪𝘵'𝘴 𝘫𝘶𝘴𝘵 𝘩𝘰𝘸 𝘐 𝘢𝘮 𝘢𝘯𝘥 𝘪 𝘥𝘦𝘧 𝘥𝘰𝘯'𝘵 𝘮𝘦𝘢𝘯 𝘵𝘰 𝘩𝘶𝘳𝘵 𝘢𝘯𝘺𝘰𝘯𝘦 𝘸𝘪𝘵𝘩 𝘵𝘩𝘦𝘴𝘦 𝘫𝘰𝘬𝘦𝘴 𝘰𝘳 𝘮𝘢𝘬𝘦 𝘵𝘩𝘦𝘮 𝘧𝘦𝘦𝘭 𝘭𝘦𝘴𝘴𝘦𝘳. 𝘐 𝘵𝘳𝘺 𝘮𝘺 𝘣𝘦𝘴𝘵 𝘵𝘰 𝘮𝘢𝘬𝘦 𝘱𝘦𝘰𝘱𝘭𝘦 𝘧𝘦𝘦𝘭 𝘤𝘰𝘮𝘧𝘰𝘳𝘵𝘢𝘣𝘭𝘦 𝘢𝘳𝘰𝘶𝘯𝘥 𝘮𝘦 𝘉𝘠 𝘣𝘦𝘪𝘯𝘨 𝘮𝘺𝘴𝘦𝘭𝘧/𝘢𝘥𝘢𝘱𝘵 𝘵𝘰 𝘵𝘩𝘦𝘪𝘳 𝘩𝘶𝘮𝘰𝘳, 𝘢𝘯𝘥 𝘐 𝘨𝘦𝘯𝘶𝘪𝘯𝘦𝘭𝘺 𝘸𝘢𝘯𝘵 𝘵𝘰 𝘣𝘦 𝘴𝘰𝘮𝘦𝘰𝘯𝘦 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘣𝘦 𝘵𝘳𝘶𝘭𝘺 𝘳𝘦𝘭𝘢𝘹𝘦𝘥 𝘸𝘪𝘵𝘩. 𝘐'𝘮 𝘷𝘦𝘳𝘺 𝘷𝘦𝘳𝘺 𝘣𝘪𝘨 𝘰𝘯 𝘭𝘰𝘺𝘢𝘭𝘵𝘺 𝘢𝘯𝘥 𝘤𝘰𝘮𝘮𝘶𝘯𝘪𝘤𝘢𝘵𝘪𝘰𝘯 𝘪𝘯 𝘣𝘰𝘵𝘩 𝘳𝘦𝘭𝘢𝘵𝘪𝘰𝘯𝘴𝘩𝘪𝘱𝘴 𝘈𝘕𝘋 𝘧𝘳𝘪𝘦𝘯𝘥𝘴𝘩𝘪𝘱𝘴. 𝘐𝘧 𝘐 𝘥𝘰 𝘴𝘰𝘮𝘦𝘵𝘩𝘪𝘯𝘨 𝘵𝘩𝘢𝘵 𝘣𝘰𝘵𝘩𝘦𝘳𝘴 𝘺𝘰𝘶 𝘦𝘷𝘦𝘯 𝘴𝘭𝘪𝘨𝘩𝘵𝘭𝘺, 𝘱𝘭𝘦𝘢𝘴𝘦 𝘵𝘦𝘭𝘭 𝘮𝘦 𝘢𝘯𝘥 𝘴𝘪𝘮𝘱𝘭𝘺 𝘤𝘰𝘮𝘮𝘶𝘯𝘪𝘤𝘢𝘵𝘦, 𝘐 𝘈𝘔 𝘸𝘪𝘭𝘭𝘪𝘯𝘨 𝘵𝘰 𝘭𝘪𝘴𝘵𝘦𝘯 𝘢𝘯𝘥 𝘤𝘩𝘢𝘯𝘨𝘦. 𝘐’𝘮 𝘯𝘢𝘵𝘶𝘳𝘢𝘭𝘭𝘺 𝘢 𝘣𝘪𝘵 𝘪𝘯𝘵𝘳𝘰𝘷𝘦𝘳𝘵𝘦𝘥 𝘢𝘯𝘥 𝘱𝘳𝘦𝘧𝘦𝘳 𝘵𝘰 𝘣𝘦 𝘲𝘶𝘪𝘦𝘵 𝘢𝘯𝘥 𝘵𝘰 𝘮𝘺𝘴𝘦𝘭𝘧, 𝘣𝘶𝘵 𝘐 𝘸𝘪𝘭𝘭 𝘰𝘧𝘤 𝘮𝘢𝘵𝘤𝘩 𝘶𝘳 𝘣𝘦𝘩𝘢𝘷𝘪𝘰𝘶𝘳 𝘢𝘯𝘥 𝘵𝘳𝘺 𝘵𝘰 𝘣𝘦 𝘧𝘶𝘯 𝘵𝘰 𝘣𝘦 𝘢𝘳𝘰𝘶𝘯𝘥. 𝘐 𝘭𝘰𝘷𝘦 𝘭𝘰𝘷𝘦 𝘯𝘦𝘸 𝘱𝘱𝘭 𝘴𝘰 𝘪𝘯𝘵 𝘧𝘳𝘦𝘦𝘭𝘺 𝘐 𝘥𝘰𝘯𝘵 𝘣𝘪𝘵𝘦!!!
+<p align="center"> 🎶 𝗠𝗼𝗿𝗲 𝗔𝗯𝗼𝘂𝘁 𝗠𝗲 :
+<p align="center"> Before I say anything, there's another ''more about me'' on my strawp. I recommend reading that one instead! | 𝘩𝘪𝘩𝘰𝘪𝘩𝘪 𝘪'𝘮 𝘐𝘴𝘢𝘢𝘤/𝘙𝘦𝘴𝘦𝘯𝘵 𝘐 𝘸𝘳𝘪𝘵𝘦 𝘪𝘯 𝘮𝘺 𝘧𝘳𝘦𝘦𝘵𝘪𝘮𝘦 𝘰𝘳 𝘸𝘩𝘦𝘯𝘦𝘷𝘦𝘳 𝘪𝘮 𝘪𝘯 𝘵𝘩𝘦 𝘮𝘰𝘰𝘥, 𝘢𝘮 𝘪𝘯𝘵𝘰 𝘢𝘭𝘰𝘵 𝘰𝘧 𝘵𝘩𝘪𝘯𝘨𝘴 𝘣𝘶𝘵 𝘸𝘰𝘯𝘵 𝘨𝘰 𝘪𝘯𝘵𝘰 𝘪𝘵 𝘤𝘶𝘻 𝘪𝘷𝘦 𝘨𝘰𝘯𝘦 𝘮𝘰𝘳𝘦 𝘪𝘯𝘵𝘰 𝘪𝘵 𝘰𝘯 𝘮𝘺 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦(𝘯𝘰𝘧𝘰𝘳𝘤𝘦 𝘵𝘰 𝘷𝘪𝘴𝘪𝘵 𝘮𝘰𝘴𝘵 𝘪𝘴 𝘩𝘦𝘳𝘦 𝘢𝘯𝘺𝘸𝘢𝘺) 𝘐 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘮𝘢𝘬𝘦 𝘮𝘦𝘢𝘯/𝘰𝘧𝘧𝘦𝘯𝘴𝘪𝘷𝘦 𝘫𝘰𝘬𝘦𝘴 𝘵𝘩𝘢𝘵 𝘴𝘰𝘮𝘦 𝘱𝘦𝘰𝘱𝘭𝘦 𝘸𝘰𝘶𝘭𝘥 𝘳𝘪𝘨𝘩𝘵𝘧𝘶𝘭𝘭𝘺 𝘧𝘪𝘯𝘥 𝘥𝘪𝘴𝘳𝘦𝘴𝘱𝘦𝘤𝘵𝘧𝘶𝘭, 𝘐𝘵'𝘴 𝘯𝘰𝘵 𝘢 𝘨𝘰𝘰𝘥 𝘵𝘳𝘢𝘪𝘵 𝘣𝘶𝘵 𝘪𝘵'𝘴 𝘫𝘶𝘴𝘵 𝘩𝘰𝘸 𝘐 𝘢𝘮 𝘢𝘯𝘥 𝘪 𝘥𝘦𝘧 𝘥𝘰𝘯'𝘵 𝘮𝘦𝘢𝘯 𝘵𝘰 𝘩𝘶𝘳𝘵 𝘢𝘯𝘺𝘰𝘯𝘦 𝘸𝘪𝘵𝘩 𝘵𝘩𝘦𝘴𝘦 𝘫𝘰𝘬𝘦𝘴 𝘰𝘳 𝘮𝘢𝘬𝘦 𝘵𝘩𝘦𝘮 𝘧𝘦𝘦𝘭 𝘭𝘦𝘴𝘴𝘦𝘳. 𝘐 𝘵𝘳𝘺 𝘮𝘺 𝘣𝘦𝘴𝘵 𝘵𝘰 𝘮𝘢𝘬𝘦 𝘱𝘦𝘰𝘱𝘭𝘦 𝘧𝘦𝘦𝘭 𝘤𝘰𝘮𝘧𝘰𝘳𝘵𝘢𝘣𝘭𝘦 𝘢𝘳𝘰𝘶𝘯𝘥 𝘮𝘦 𝘉𝘠 𝘣𝘦𝘪𝘯𝘨 𝘮𝘺𝘴𝘦𝘭𝘧/𝘢𝘥𝘢𝘱𝘵 𝘵𝘰 𝘵𝘩𝘦𝘪𝘳 𝘩𝘶𝘮𝘰𝘳, 𝘢𝘯𝘥 𝘐 𝘨𝘦𝘯𝘶𝘪𝘯𝘦𝘭𝘺 𝘸𝘢𝘯𝘵 𝘵𝘰 𝘣𝘦 𝘴𝘰𝘮𝘦𝘰𝘯𝘦 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘣𝘦 𝘵𝘳𝘶𝘭𝘺 𝘳𝘦𝘭𝘢𝘹𝘦𝘥 𝘸𝘪𝘵𝘩. 𝘐'𝘮 𝘷𝘦𝘳𝘺 𝘷𝘦𝘳𝘺 𝘣𝘪𝘨 𝘰𝘯 𝘭𝘰𝘺𝘢𝘭𝘵𝘺 𝘢𝘯𝘥 𝘤𝘰𝘮𝘮𝘶𝘯𝘪𝘤𝘢𝘵𝘪𝘰𝘯 𝘪𝘯 𝘣𝘰𝘵𝘩 𝘳𝘦𝘭𝘢𝘵𝘪𝘰𝘯𝘴𝘩𝘪𝘱𝘴 𝘈𝘕𝘋 𝘧𝘳𝘪𝘦𝘯𝘥𝘴𝘩𝘪𝘱𝘴. 𝘐𝘧 𝘐 𝘥𝘰 𝘴𝘰𝘮𝘦𝘵𝘩𝘪𝘯𝘨 𝘵𝘩𝘢𝘵 𝘣𝘰𝘵𝘩𝘦𝘳𝘴 𝘺𝘰𝘶 𝘦𝘷𝘦𝘯 𝘴𝘭𝘪𝘨𝘩𝘵𝘭𝘺, 𝘱𝘭𝘦𝘢𝘴𝘦 𝘵𝘦𝘭𝘭 𝘮𝘦 𝘢𝘯𝘥 𝘴𝘪𝘮𝘱𝘭𝘺 𝘤𝘰𝘮𝘮𝘶𝘯𝘪𝘤𝘢𝘵𝘦, 𝘐 𝘈𝘔 𝘸𝘪𝘭𝘭𝘪𝘯𝘨 𝘵𝘰 𝘭𝘪𝘴𝘵𝘦𝘯 𝘢𝘯𝘥 𝘤𝘩𝘢𝘯𝘨𝘦. 𝘐’𝘮 𝘯𝘢𝘵𝘶𝘳𝘢𝘭𝘭𝘺 𝘢 𝘣𝘪𝘵 𝘪𝘯𝘵𝘳𝘰𝘷𝘦𝘳𝘵𝘦𝘥 𝘢𝘯𝘥 𝘱𝘳𝘦𝘧𝘦𝘳 𝘵𝘰 𝘣𝘦 𝘲𝘶𝘪𝘦𝘵 𝘢𝘯𝘥 𝘵𝘰 𝘮𝘺𝘴𝘦𝘭𝘧, 𝘣𝘶𝘵 𝘐 𝘸𝘪𝘭𝘭 𝘰𝘧𝘤 𝘮𝘢𝘵𝘤𝘩 𝘶𝘳 𝘣𝘦𝘩𝘢𝘷𝘪𝘰𝘶𝘳 𝘢𝘯𝘥 𝘵𝘳𝘺 𝘵𝘰 𝘣𝘦 𝘧𝘶𝘯 𝘵𝘰 𝘣𝘦 𝘢𝘳𝘰𝘶𝘯𝘥. 𝘐 𝘭𝘰𝘷𝘦 𝘭𝘰𝘷𝘦 𝘯𝘦𝘸 𝘱𝘱𝘭 𝘴𝘰 𝘪𝘯𝘵 𝘧𝘳𝘦𝘦𝘭𝘺 𝘐 𝘥𝘰𝘯𝘵 𝘣𝘪𝘵𝘦!!!
 
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com/?font=Cormorant+Garamond&size=30&duration=7100&pause=4300&color=9d9fa1&center=true&vCenter=true&width=900&lines=I+am+forever+your+most+devoted+believer.">
+  <img src="https://readme-typing-svg.demolab.com/?font=Cormorant+Garamond&size=30&duration=3500&pause=1500&color=5b6ef6&center=true&vCenter=true&width=700&lines=Those+numbers+are+constantly+just..;going+to+grow+against+you.;You+know,+you+might+be+okay+now,+but...;One+day+you're+gonna+slip+up+And,;And+you're+gonna+die.">
 </p>
 
-<p align="center">ᴵ ʰᵃᵗᵉ ᵘ ᴵˢᶻʸ
+<p align="center"><img width="622" height="370" alt="wasgtwedc" src="https://github.com/user-attachments/assets/2f88baa5-46ba-4d9d-b358-d3307f797c0a" />
 
-<p align="center"><img width="490" height="251" alt="image" src="https://github.com/user-attachments/assets/88910748-16d5-4899-bc31-f68c2fefd376" />
 
 
 <p align="center">
-𝙏𝙃𝘼𝙉𝙆 𝙔𝙊𝙐𝙐!! 
+ 𝙏𝙃𝘼𝙉𝙆 𝙔𝙊𝙐𝙐!! 
   
-* 𝘧𝘰𝘳 𝘳𝘦𝘢𝘥𝘪𝘯𝘨 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘶 𝘫𝘶𝘴𝘵 𝘴𝘤𝘳𝘰𝘭𝘭𝘦𝘥 𝘵𝘰 𝘵𝘩𝘦 𝘣𝘰𝘵𝘵𝘰𝘮 (??)
+<p align="center">
+<img width="180" height="210" alt="bubuchibi" src="https://github.com/user-attachments/assets/a779400b-beb5-4d40-9dcf-4484f2a6decb" />
+<img width="180" height="200" alt="eggchanchibi" src="https://github.com/user-attachments/assets/cd5e1a76-c104-4620-86df-04287d526bf1" />
 
-* 𝘐 𝘢𝘱𝘰𝘭𝘰𝘨𝘪𝘻𝘦 𝘪𝘧 𝘵𝘩𝘦 𝘪𝘮𝘢𝘨𝘦𝘴 𝘣𝘢𝘤𝘬𝘨𝘳𝘰𝘶𝘯𝘥𝘴 𝘢𝘳𝘦 𝘴𝘵𝘪𝘭𝘭 𝘷𝘪𝘴𝘪𝘣𝘭𝘦..𝘪𝘵'𝘴 𝘮𝘦𝘢𝘯'𝘵 𝘵𝘰 𝘣𝘦 𝘪𝘯𝘷𝘪𝘴 𝘣𝘶𝘵 
+
+  * 𝘐 𝘢𝘱𝘰𝘭𝘰𝘨𝘪𝘻𝘦 𝘪𝘧 𝘵𝘩𝘦 𝘪𝘮𝘢𝘨𝘦𝘴 𝘣𝘢𝘤𝘬𝘨𝘳𝘰𝘶𝘯𝘥𝘴 𝘢𝘳𝘦 𝘴𝘵𝘪𝘭𝘭 𝘷𝘪𝘴𝘪𝘣𝘭𝘦..𝘪𝘵'𝘴 𝘮𝘦𝘢𝘯'𝘵 𝘵𝘰 𝘣𝘦 𝘪𝘯𝘷𝘪𝘴 𝘣𝘶𝘵 
 𝘐 𝘤𝘢𝘯'𝘵 𝘢𝘥𝘫𝘶𝘴𝘵 𝘪𝘵 𝘧𝘰𝘳 𝘴𝘰𝘮𝘦 𝘳𝘦𝘢𝘴𝘰𝘯 𝘢𝘯𝘥 𝘪𝘮 𝘵𝘰𝘰 𝘭𝘢𝘻𝘺 (𝘤𝘢𝘯 𝘶 𝘵𝘦𝘭𝘭 𝘪'𝘮 𝘳𝘭𝘭𝘺 𝘭𝘢𝘻𝘺)
 
-* 𝘗𝘳𝘰𝘧𝘪𝘭𝘦 𝘵𝘩𝘦𝘮𝘦𝘥 𝘢𝘳𝘰𝘶𝘯𝘥 𝘛𝘎𝘊𝘍 (𝘛𝘪𝘢𝘯 𝘎𝘶𝘢𝘯 𝘊𝘪 𝘍𝘶/𝘏𝘦𝘢𝘷𝘦𝘯 𝘖𝘧𝘧𝘪𝘤𝘪𝘢𝘭'𝘴 𝘉𝘭𝘦𝘴𝘴𝘪𝘯𝘨!!)
-𝘴𝘱𝘦𝘤𝘪𝘧𝘪𝘤𝘢𝘭𝘭𝘺 𝘤𝘶𝘻 𝘐 𝘢𝘥𝘰𝘳𝘦 𝘪𝘵
+* 𝘗𝘳𝘰𝘧𝘪𝘭𝘦 𝘵𝘩𝘦𝘮𝘦𝘥 𝘢𝘳𝘰𝘶𝘯𝘥 𝘛𝘢𝘹 𝘥𝘶𝘰 (𝘜𝘯𝘴𝘵𝘢𝘣𝘭𝘦 𝘶𝘯𝘪) / 𝘚𝘭𝘪𝘨𝘩𝘵𝘭𝘺 𝘮𝘰𝘳𝘦 𝘴𝘰 𝘞𝘦𝘮𝘮𝘣𝘶
 
 <p align="center"> ──────────── ୨୧ ────────────
-<p align="center">𝗦𝗽𝗲𝗰𝗶𝗳𝗶𝗰𝗮𝗹𝗹𝘆 𝗙𝗼𝗿 𝗣𝗼𝗻𝘆𝘁𝗼𝘄𝗻 :
+
+<p align="center">
+  <img src="https://readme-typing-svg.demolab.com/?font=Cormorant+Garamond&size=30&duration=7100&pause=4300&color=5b6ef6&center=true&vCenter=true&width=900&lines=FOR+PONYTOWN+SPECIFICALLY">
+</p>
+
+
  <p align="center"> 
  𝘛𝘩𝘦 𝘱𝘰𝘯𝘪𝘦𝘴/𝘤𝘰𝘴𝘱𝘭𝘢𝘺𝘴 𝘵𝘩𝘢𝘵 𝘐 𝘮𝘢𝘪𝘯𝘭𝘺 𝘶𝘴𝘦 : 𝘞𝘪𝘧𝘪𝘦𝘴,𝘗𝘢𝘳𝘳𝘰𝘵𝘹2,𝘞𝘦𝘮𝘮𝘣𝘶,𝘚𝘢𝘭𝘭𝘺𝘧𝘢𝘤𝘦,Judelow,𝘖𝘵𝘩𝘦𝘳
   
  <p align="center">But even if im not using any of these, my github would be attached,
 
-* 𝘚𝘢𝘧𝘦 𝘴𝘦𝘳𝘷𝘦𝘳 #1 ⸝⸝ 𝘜𝘴𝘶𝘢𝘭𝘭𝘺 w/ friends so random places
+* 𝘕𝘦𝘷𝘦𝘳 𝘢𝘵 𝘴𝘢𝘧𝘦 #1 𝘣𝘶𝘵 𝘪𝘧 𝘐 𝘢𝘮 ⸝⸝ 𝘜𝘴𝘶𝘢𝘭𝘭𝘺 w/ friends so random places
 
 * 𝘚𝘢𝘧𝘦 𝘴𝘦𝘳𝘷𝘦𝘳 #2 ⸝⸝ 𝘜𝘴𝘶𝘢𝘭𝘭𝘺 𝘢𝘵 𝘵𝘩𝘦 𝘣𝘦𝘢𝘤𝘩 𝘥𝘰𝘤𝘬𝘴 (𝘣𝘰𝘵𝘵𝘰𝘮 𝘰𝘧 𝘵𝘩𝘦 𝘮𝘢𝘱)
 
 * 𝘪𝘧 𝘪𝘮 𝘯𝘰𝘵 𝘢𝘵 𝘵𝘩𝘦𝘴𝘦 𝘢𝘳𝘦𝘢𝘴 𝘪'𝘮 𝘱𝘳𝘰𝘣𝘢𝘣𝘭𝘺 𝘸𝘪𝘵𝘩 𝘧𝘳𝘪𝘦𝘯𝘥𝘴!!
 
 * 𝘐𝘯𝘵 𝘧𝘳𝘦𝘦𝘭𝘺 𝘳𝘦𝘨𝘢𝘳𝘥𝘭𝘦𝘴𝘴 𝘰𝘧 𝘪𝘧 𝘪'𝘮 𝘸𝘪𝘵𝘩 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘰𝘳 𝘯𝘰𝘵, 𝘶𝘯𝘭𝘦𝘴𝘴 𝘥𝘯𝘪/𝘥𝘯𝘪𝘶𝘥/𝘥𝘯𝘪𝘶𝘧 𝘪𝘴 𝘪𝘯 𝘮𝘺 𝘶𝘴𝘦𝘳
-* 𝘊+𝘩 𝘧𝘳𝘦𝘦𝘭𝘺 𝘶𝘯𝘭𝘦𝘴𝘴 𝘥𝘯𝘪/𝘥𝘯𝘪𝘶𝘥/𝘥𝘯𝘪𝘶𝘧 𝘪𝘴 𝘪𝘯 𝘮𝘺 𝘶𝘴𝘦𝘳.
+* 𝘊+𝘩 𝘧𝘳𝘦𝘦𝘭𝘺 𝘶𝘯𝘭𝘦𝘴𝘴 𝘥𝘯𝘪/𝘥𝘯𝘪𝘶𝘥/𝘥𝘯𝘪𝘶𝘧 𝘪𝘴 𝘪𝘯 𝘮𝘺 𝘶𝘴𝘦𝘳
 
 * 𝘔𝘰𝘴𝘵 𝘥𝘦𝘧 𝘢𝘧𝘬 𝘰𝘳 𝘰𝘧𝘧𝘵𝘢𝘣 𝘴𝘰 𝘸2𝘪 𝘰𝘳 𝘴𝘰𝘮𝘦𝘵𝘪𝘮𝘦𝘴 𝘪𝘭𝘭 𝘳𝘦𝘱𝘭𝘺 𝘪𝘧 𝘪 𝘯𝘰𝘵𝘪𝘤𝘦 𝘶 𝘴𝘵𝘢𝘯𝘥𝘪𝘯𝘨 𝘪𝘯𝘧𝘳𝘰𝘯𝘵/𝘣𝘦𝘴𝘪𝘥𝘦 𝘮𝘦
 
