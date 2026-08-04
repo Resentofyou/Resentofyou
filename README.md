@@ -49,7 +49,7 @@
 <p align="center"> 𝘐𝘧 𝘺𝘰𝘶 𝘸𝘢𝘯𝘵 𝘮𝘰𝘳𝘦 𝘪𝘯𝘧𝘰 𝘰𝘯 𝘮𝘦 𝘴𝘱𝘦𝘤𝘪𝘧𝘪𝘤𝘢𝘭𝘭𝘺, 𝘤𝘩𝘦𝘤𝘬 𝘵𝘩𝘦𝘴𝘦 𝘭𝘪𝘯𝘬𝘴:
 
   
-✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦ [![STRAWPAGE](https://img.shields.io/badge/STRAWPAGE-A02A24?style=for-the-badge&labelColor=a495ed&color=a495ed)](https://resentofyou.straw.page/)    [![Pronouns](https://img.shields.io/badge/PRONOUNS_PAGE-A02A24?style=for-the-badge&labelColor=7878f3&color=7878f3)](https://en.pronouns.page/@Resent) ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
+✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦ [![STRAWPAGE](https://img.shields.io/badge/STRAWPAGE-A02A24?style=for-the-badge&labelColor=a495ed&color=a495ed)](https://resentofyou.straw.page/)    [![Pronouns](https://img.shields.io/badge/PRONOUNS_PAGE-A02A24?style=for-the-badge&labelColor=7878f3&color=7878f3)](https://en.pronouns.page/@Resent) ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
 
 
   
