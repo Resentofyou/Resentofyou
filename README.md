@@ -62,6 +62,7 @@
  𝘛𝘩𝘦 𝘱𝘰𝘯𝘪𝘦𝘴/𝘤𝘰𝘴𝘱𝘭𝘢𝘺𝘴 𝘵𝘩𝘢𝘵 𝘐 𝘮𝘢𝘪𝘯𝘭𝘺 𝘶𝘴𝘦 : Judelow,Wemmbu,Eggchan,Sallyface,Wifies,other
   
  <p align="center">But even if im not using any of these, my github would be attached,
+ you'll prob notice me from the fact that ALL MY SKINS ARE WIPS AND SOMEWHAT UNCOLOURED,,,sometimes
 
 　
 
