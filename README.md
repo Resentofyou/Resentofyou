@@ -7,7 +7,7 @@
 </p>
 
 
-![ATABOOK](https://img.shields.io/badge/♡_ATABOOK_♡-A02A24?style=for-the-badge&labelColor=f3e9f4&color=f3e9f4) ![STRAWPAGE](https://img.shields.io/badge/♡_STRAWPAGE_♡-A02A24?style=for-the-badge&labelColor=fecdeb&color=fecdeb) ![PRONOUNS](https://img.shields.io/badge/♡_PRONOUNS_PAGE_♡-A02A24?style=for-the-badge&labelColor=fce0ec&color=fce0ec) ![PINTEREST](https://img.shields.io/badge/♡_PINTEREST_♡-A02A24?style=for-the-badge&labelColor=f3e9f4&color=f3e9f4) ![SPOTIFY](https://img.shields.io/badge/♡_SPOTIFY_♡-A02A24?style=for-the-badge&labelColor=fce0ec&color=fce0ec) ![INSTAGRAM](https://img.shields.io/badge/♡_INSTAGRAM_♡-A02A24?style=for-the-badge&labelColor=fecdeb&color=fecdeb) ![TIKTOK](https://img.shields.io/badge/♡_TIKTOK_♡-A02A24?style=for-the-badge&labelColor=f3e9f4&color=f3e9f4) 
+![ATABOOK](https://img.shields.io/badge/♡_ATABOOK_♡-A02A24?style=for-the-badge&labelColor=f3e9f4&color=f3e9f4) ![STRAWPAGE](https://img.shields.io/badge/♡_STRAWPAGE_♡-A02A24?style=for-the-badge&labelColor=fecdeb&color=fecdeb) ![PRONOUNS](https://img.shields.io/badge/♡_PRNS_PAGE_♡-A02A24?style=for-the-badge&labelColor=fce0ec&color=fce0ec) ![PINTEREST](https://img.shields.io/badge/♡_PINTEREST_♡-A02A24?style=for-the-badge&labelColor=f3e9f4&color=f3e9f4) ![SPOTIFY](https://img.shields.io/badge/♡_SPOTIFY_♡-A02A24?style=for-the-badge&labelColor=fce0ec&color=fce0ec) ![INSTAGRAM](https://img.shields.io/badge/♡_INSTAGRAM_♡-A02A24?style=for-the-badge&labelColor=fecdeb&color=fecdeb) ![TIKTOK](https://img.shields.io/badge/♡_TIKTOK_♡-A02A24?style=for-the-badge&labelColor=f3e9f4&color=f3e9f4) 
 
 
 
