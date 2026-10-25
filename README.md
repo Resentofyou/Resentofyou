@@ -1,84 +1,82 @@
 <p align="center">8𝘵𝘦𝘦𝘯 | 𝘪𝘴𝘧𝘱-𝘵 . 2𝘸1 | 𝘩𝘦/𝘩𝘪𝘮 |  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d1190456-1bcc-4527-9348-c4268625a2eb" />
+<p align="center">
+꒰১݁ ˖Ი𐑼⋆ ໒꒱
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com/?font=Cormorant+Garamond&size=30&duration=7100&pause=4300&color=5b6ef6&center=true&vCenter=true&width=900&lines=YOUR+ENTIRE+CITY+IS+GONNA+BE+TURNED+INTO+A+CRATER!!">
+<img src="https://readme-typing-svg.demolab.com/?font=Baloo&size=30&duration=7120&pause=4800&color=fecee8&center=true&vCenter=true&width=900&lines=Some+relationships+dont+begin+with+a+sudden+confession.;Some+emotions+are+too+deep+to+be+spoken+on+the+first+day.">
 </p>
 
 
-𝘊𝘭𝘪𝘤𝘬!! >>[![ATABOOK](https://img.shields.io/badge/ATABOOK-A02A24?style=for-the-badge&labelColor=f3e9f4&color=f3e9f4)](https://resentofyou.atabook.org/)      [![STRAWPAGE](https://img.shields.io/badge/STRAWPAGE-A02A24?style=for-the-badge&labelColor=a495ed&color=a495ed)](https://resentofyou.straw.page/)    [![Pronouns](https://img.shields.io/badge/PRONOUNS_PAGE-A02A24?style=for-the-badge&labelColor=7878f3&color=7878f3)](https://en.pronouns.page/@Resent)    [![PINTEREST](https://img.shields.io/badge/PINTEREST-A02A24?style=for-the-badge&labelColor=526bf5&color=526bf5)](https://www.pinterest.com/Resentofyou/)    [![SPOTIFY](https://img.shields.io/badge/SPOTIFY-A02A24?style=for-the-badge&labelColor=255be5&color=255be5)](https://open.spotify.com/user/315pfr6p5sigzzdp6jlge4pip2fa)  [![INSTAGRAM](https://img.shields.io/badge/INSTAGRAM-A02A24?style=for-the-badge&labelColor=2954bd&color=2954bd)](https://www.instagram.com/r3sentmnt/)  [![TIKTOK](https://img.shields.io/badge/TIKTOK-A02A24?style=for-the-badge&labelColor=2451b6&color=2451b6)](https://www.tiktok.com/@resentcfyou)
+Click >> ![ATABOOK](https://img.shields.io/badge/♡_ATABOOK_♡-A02A24?style=for-the-badge&labelColor=f3e9f4&color=f3e9f4) ![STRAWPAGE](https://img.shields.io/badge/♡_STRAWPAGE_♡-A02A24?style=for-the-badge&labelColor=fecdeb&color=fecdeb) ![PRONOUNS](https://img.shields.io/badge/♡_PRONOUNS_PAGE_♡-A02A24?style=for-the-badge&labelColor=fce0ec&color=fce0ec) ![PINTEREST](https://img.shields.io/badge/♡_PINTEREST_♡-A02A24?style=for-the-badge&labelColor=f3e9f4&color=f3e9f4) ![SPOTIFY](https://img.shields.io/badge/♡_SPOTIFY_♡-A02A24?style=for-the-badge&labelColor=fce0ec&color=fce0ec) ![INSTAGRAM](https://img.shields.io/badge/♡_INSTAGRAM_♡-A02A24?style=for-the-badge&labelColor=fecdeb&color=fecdeb) ![TIKTOK](https://img.shields.io/badge/♡_TIKTOK_♡-A02A24?style=for-the-badge&labelColor=f3e9f4&color=f3e9f4) 
+
+
 
 <p align="center">
 
-<img width="622" height="340" alt="wemmbuuuuu123" src="https://github.com/user-attachments/assets/9545cc03-7dc3-43aa-91be-3b8d3d19857b" />
+<img width="447" height="559" alt="image" src="https://github.com/user-attachments/assets/3a3f33c4-df75-44aa-82c2-d25b3aac7e36" />
 
 
-<img src="https://readme-typing-svg.demolab.com/?font=Cormorant+Garamond&size=30&duration=7120&pause=4300&color=7778f2&center=true&vCenter=true&width=900&lines=Please+read!!+(Scroll)">
+
+<img src="https://readme-typing-svg.demolab.com/?font=Baloo&size=30&duration=7120&pause=4800&color=fecee8&center=true&vCenter=true&width=900&lines=Please+read!!+(Scroll)">
 </p>
 
 <p align="center"> !! 𝘿𝙤 𝙉𝙤𝙩 𝙄𝙣𝙩𝙚𝙧𝙖𝙘𝙩 (𝘿𝙉𝙄):
  <p align="center">𝘏𝘰𝘮𝘰𝘱𝘩𝘰𝘣𝘦𝘴, 𝘙𝘢𝘤𝘪𝘴𝘵𝘴, 𝘗𝘦𝘥𝘴, 𝘛𝘳𝘶𝘮𝘱 𝘴𝘶𝘱𝘱𝘰𝘳𝘵𝘦𝘳𝘴, 𝘛𝘳𝘢𝘯𝘴𝘱𝘩𝘰𝘣𝘦𝘴, 𝘈𝘣𝘭𝘦𝘪𝘴𝘵𝘴, 𝘔𝘪𝘴𝘰𝘨𝘺𝘯𝘪𝘴𝘵𝘴, 𝘡𝘰𝘰𝘱𝘩𝘪𝘭𝘦𝘴, 𝘦𝘵𝘤 𝘢𝘯𝘥 𝘱𝘱𝘭 𝘸𝘩𝘰 𝘴𝘦𝘦 𝘯𝘰 𝘸𝘳𝘰𝘯𝘨 𝘪𝘯/𝘴𝘶𝘱𝘱𝘰𝘳𝘵 𝘵𝘩𝘪𝘴 𝘴𝘵𝘶𝘧𝘧, 𝘫𝘶𝘴𝘵 𝘸𝘦𝘪𝘳𝘥𝘰𝘴(𝘵𝘩𝘦 𝘣𝘢𝘥 𝘬𝘪𝘯𝘥) 𝘥𝘯𝘪 𝘵𝘰 𝘳𝘰𝘭𝘦𝘱𝘭𝘢𝘺..
+
+<p align="center">
+   ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+
 <p align="center">  𝘽𝙚 𝙔𝙤𝙪𝙧 𝙁𝙧𝙞𝙚𝙣𝙙 (𝘽𝙔𝙁):
 <p align="center"> 𝘐 𝘴𝘰𝘮𝘦𝘵𝘪𝘮𝘦𝘴 𝘧𝘰𝘳𝘨𝘦𝘵 𝘵𝘰 𝘳𝘦𝘱𝘭𝘺 𝘰𝘳 𝘳𝘦𝘱𝘭𝘺 𝘭𝘢𝘵𝘦 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘰𝘧 𝘦𝘹𝘢𝘮𝘴/𝘰𝘵𝘩𝘦𝘳 𝘳𝘦𝘢𝘴𝘰𝘯𝘴, 𝘈𝘚𝘛𝘵𝘪𝘮𝘦, Moodswings (I'm rarely pissy but i'd just go quiet or be dry) I 𝘶𝘴𝘦 𝘰𝘧𝘧𝘦𝘯𝘴𝘪𝘷𝘦 𝘭𝘢𝘯𝘨𝘶𝘢𝘨𝘦 (𝘯𝘰𝘵 𝘤𝘰𝘯𝘴𝘵𝘢𝘯𝘵𝘭𝘺, if uncomf I WILL stop.), will not int first
 
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com/?font=Cormorant+Garamond&size=30&duration=3500&pause=1500&color=5b6ef6&center=true&vCenter=true&width=700&lines=Those+numbers+are+constantly+just..;going+to+grow+against+you.;You+know,+you+might+be+okay+now,+but...;One+day+you're+gonna+slip+up+And,;And+you're+going+to+die.">
+  <img src="https://readme-typing-svg.demolab.com/?font=Baloo&size=30&duration=7120&pause=4750&color=fecee8&center=true&vCenter=true&width=900&lines=Dont+you+realize+that+were+meant+to+be+together.?">
 </p>
 
-<p align="center"><img width="622" height="370" alt="wasgtwedc" src="https://github.com/user-attachments/assets/2f88baa5-46ba-4d9d-b358-d3307f797c0a" />
+<p align="center"><img width="581" height="157" alt="image" src="https://github.com/user-attachments/assets/7a5a0ed2-5d40-4038-8e43-3b9f058b7fc1" />
+
 
 
 
 <p align="center">
  𝙏𝙃𝘼𝙉𝙆 𝙔𝙊𝙐𝙐!! 
   
-<p align="center">
-<img width="180" height="210" alt="bubuchibi" src="https://github.com/user-attachments/assets/a779400b-beb5-4d40-9dcf-4484f2a6decb" />
-<img width="180" height="200" alt="eggchanchibi" src="https://github.com/user-attachments/assets/cd5e1a76-c104-4620-86df-04287d526bf1" />
+
 
 
   * 𝘐 𝘢𝘱𝘰𝘭𝘰𝘨𝘪𝘻𝘦 𝘪𝘧 𝘵𝘩𝘦 𝘪𝘮𝘢𝘨𝘦𝘴 𝘣𝘢𝘤𝘬𝘨𝘳𝘰𝘶𝘯𝘥𝘴 𝘢𝘳𝘦 𝘴𝘵𝘪𝘭𝘭 𝘷𝘪𝘴𝘪𝘣𝘭𝘦..𝘪𝘵'𝘴 𝘮𝘦𝘢𝘯'𝘵 𝘵𝘰 𝘣𝘦 𝘪𝘯𝘷𝘪𝘴 𝘣𝘶𝘵 
-𝘐 𝘤𝘢𝘯'𝘵 𝘢𝘥𝘫𝘶𝘴𝘵 𝘪𝘵 𝘧𝘰𝘳 𝘴𝘰𝘮𝘦 𝘳𝘦𝘢𝘴𝘰𝘯 𝘢𝘯𝘥 𝘪𝘮 𝘵𝘰𝘰 𝘭𝘢𝘻𝘺 (𝘤𝘢𝘯 𝘶 𝘵𝘦𝘭𝘭 𝘪'𝘮 𝘳𝘭𝘭𝘺 𝘭𝘢𝘻𝘺)
+𝘐 𝘤𝘢𝘯'𝘵 𝘢𝘥𝘫𝘶𝘴𝘵 𝘪𝘵 𝘧𝘰𝘳 a𝘯𝘥 𝘪𝘮 𝘵𝘰𝘰 𝘭𝘢𝘻𝘺
 
-* Layout looks better one laptops/Tablets
-
-* 𝘗𝘳𝘰𝘧𝘪𝘭𝘦 𝘵𝘩𝘦𝘮𝘦𝘥 𝘢𝘳𝘰𝘶𝘯𝘥 𝘛𝘢𝘹 𝘥𝘶𝘰 (𝘜𝘯𝘴𝘵𝘢𝘣𝘭𝘦 𝘶𝘯𝘪) / 𝘚𝘭𝘪𝘨𝘩𝘵𝘭𝘺 𝘮𝘰𝘳𝘦 𝘴𝘰 𝘞𝘦𝘮𝘮𝘣𝘶
+* Layout looks better on laptops/Tablets
 
 <p align="center">𝙁𝙤𝙧 𝗠𝗼𝗿𝗲 𝗔𝗯𝗼𝘂𝘁 𝗠𝗲 :
   
 <p align="center"> 𝘐𝘧 𝘺𝘰𝘶 𝘸𝘢𝘯𝘵 𝘮𝘰𝘳𝘦 𝘪𝘯𝘧𝘰 𝘰𝘯 𝘮𝘦 𝘴𝘱𝘦𝘤𝘪𝘧𝘪𝘤𝘢𝘭𝘭𝘺, 𝘤𝘩𝘦𝘤𝘬 𝘵𝘩𝘦𝘴𝘦 𝘭𝘪𝘯𝘬𝘴:
 
+<p align="center">
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f8e23829-c3c4-482b-92a6-458cef810a5a" />
   
-✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦ [![STRAWPAGE](https://img.shields.io/badge/STRAWPAGE-A02A24?style=for-the-badge&labelColor=a495ed&color=a495ed)](https://resentofyou.straw.page/)    [![Pronouns](https://img.shields.io/badge/PRONOUNS_PAGE-A02A24?style=for-the-badge&labelColor=7878f3&color=7878f3)](https://en.pronouns.page/@Resent) ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
+✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦ ![STRAWPAGE](https://img.shields.io/badge/♡_STRAWPAGE_♡-A02A24?style=for-the-badge&labelColor=fecdeb&color=fecdeb) ![PRONOUNS](https://img.shields.io/badge/♡_PRONOUNS_PAGE_♡-A02A24?style=for-the-badge&labelColor=f3e9f4&color=f3e9f4) ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
 
 
   
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com/?font=Cormorant+Garamond&size=30&duration=7200&pause=4300&color=5b6ef6&center=true&vCenter=true&width=900&lines=FOR+PONYTOWN+SPECIFICALLY">
+ <img src="https://readme-typing-svg.demolab.com/?font=Baloo&size=30&duration=7120&pause=4800&color=fecee8&center=true&vCenter=true&width=900&lines=FOR+PONYTOWN+SPECIFICALLY">
 </p>
 
 
- <p align="center"> 
- 𝘛𝘩𝘦 𝘱𝘰𝘯𝘪𝘦𝘴/𝘤𝘰𝘴𝘱𝘭𝘢𝘺𝘴 𝘵𝘩𝘢𝘵 𝘐 𝘮𝘢𝘪𝘯𝘭𝘺 𝘶𝘴𝘦 : Judelow,Wemmbu,Eggchan,Sallyface,Wifies,other
-  
- <p align="center">But even if im not using any of these, my github would be attached,
- you'll prob notice me from the fact that ALL MY SKINS ARE WIPS AND SOMEWHAT UNCOLOURED,,,sometimes
+ 
 
-　
+♡ 𝘚𝘢𝘧𝘦 𝘴𝘦𝘳𝘷𝘦𝘳 #2 ⸝⸝ 𝘜𝘴𝘶𝘢𝘭𝘭𝘺 𝘢𝘵 𝘵𝘩𝘦 𝘣𝘦𝘢𝘤𝘩 𝘥𝘰𝘤𝘬𝘴 (𝘣𝘰𝘵𝘵𝘰𝘮 𝘰𝘧 𝘵𝘩𝘦 𝘮𝘢𝘱)
 
-* 𝘕𝘦𝘷𝘦𝘳 𝘢𝘵 𝘴𝘢𝘧𝘦 #1 𝘣𝘶𝘵 𝘪𝘧 𝘐 𝘢𝘮 ⸝⸝ 𝘜𝘴𝘶𝘢𝘭𝘭𝘺 w/ friends so random places
+♡ 𝘪𝘧 𝘪𝘮 𝘯𝘰𝘵 𝘢𝘵 𝘵𝘩𝘦𝘴𝘦 𝘢𝘳𝘦𝘢𝘴 𝘪'𝘮 𝘱𝘳𝘰𝘣𝘢𝘣𝘭𝘺 𝘸𝘪𝘵𝘩 𝘧𝘳𝘪𝘦𝘯𝘥𝘴
 
-* 𝘚𝘢𝘧𝘦 𝘴𝘦𝘳𝘷𝘦𝘳 #2 ⸝⸝ 𝘜𝘴𝘶𝘢𝘭𝘭𝘺 𝘢𝘵 𝘵𝘩𝘦 𝘣𝘦𝘢𝘤𝘩 𝘥𝘰𝘤𝘬𝘴 (𝘣𝘰𝘵𝘵𝘰𝘮 𝘰𝘧 𝘵𝘩𝘦 𝘮𝘢𝘱)
+♡ If not at any of these, I'm offline or with my regi (dss)
 
-* 𝘪𝘧 𝘪𝘮 𝘯𝘰𝘵 𝘢𝘵 𝘵𝘩𝘦𝘴𝘦 𝘢𝘳𝘦𝘢𝘴 𝘪'𝘮 𝘱𝘳𝘰𝘣𝘢𝘣𝘭𝘺 𝘸𝘪𝘵𝘩 𝘧𝘳𝘪𝘦𝘯𝘥𝘴!!
+♡ 𝘐𝘯𝘵 𝘧𝘳𝘦𝘦𝘭𝘺 𝘳𝘦𝘨𝘢𝘳𝘥𝘭𝘦𝘴𝘴 𝘰𝘧 𝘪𝘧 𝘪'𝘮 𝘸𝘪𝘵𝘩 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘰𝘳 𝘯𝘰𝘵, 𝘶𝘯𝘭𝘦𝘴𝘴 𝘥𝘯𝘪/𝘥𝘯𝘪𝘶𝘥/𝘥𝘯𝘪𝘶𝘧 𝘪𝘴 𝘪𝘯 𝘮𝘺 𝘶𝘴𝘦𝘳
 
-* If not at any of these, I'm offline or in regi (dss) !!
+♡ Dont c*h
 
-* 𝘐𝘯𝘵 𝘧𝘳𝘦𝘦𝘭𝘺 𝘳𝘦𝘨𝘢𝘳𝘥𝘭𝘦𝘴𝘴 𝘰𝘧 𝘪𝘧 𝘪'𝘮 𝘸𝘪𝘵𝘩 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘰𝘳 𝘯𝘰𝘵, 𝘶𝘯𝘭𝘦𝘴𝘴 𝘥𝘯𝘪/𝘥𝘯𝘪𝘶𝘥/𝘥𝘯𝘪𝘶𝘧 𝘪𝘴 𝘪𝘯 𝘮𝘺 𝘶𝘴𝘦𝘳
-* Dont c*h.
+♡ 𝘔𝘰𝘴𝘵 𝘥𝘦𝘧 𝘢𝘧𝘬 𝘰𝘳 𝘰𝘧𝘧𝘵𝘢𝘣 𝘴𝘰 𝘸2𝘪 𝘰𝘳 𝘴𝘰𝘮𝘦𝘵𝘪𝘮𝘦𝘴 𝘪𝘭𝘭 𝘳𝘦𝘱𝘭𝘺 𝘪𝘧 𝘪 𝘯𝘰𝘵𝘪𝘤𝘦 𝘶 𝘴𝘵𝘢𝘯𝘥𝘪𝘯𝘨 𝘪𝘯𝘧𝘳𝘰𝘯𝘵/𝘣𝘦𝘴𝘪𝘥𝘦 𝘮𝘦
 
-* 𝘔𝘰𝘴𝘵 𝘥𝘦𝘧 𝘢𝘧𝘬 𝘰𝘳 𝘰𝘧𝘧𝘵𝘢𝘣 𝘴𝘰 𝘸2𝘪 𝘰𝘳 𝘴𝘰𝘮𝘦𝘵𝘪𝘮𝘦𝘴 𝘪𝘭𝘭 𝘳𝘦𝘱𝘭𝘺 𝘪𝘧 𝘪 𝘯𝘰𝘵𝘪𝘤𝘦 𝘶 𝘴𝘵𝘢𝘯𝘥𝘪𝘯𝘨 𝘪𝘯𝘧𝘳𝘰𝘯𝘵/𝘣𝘦𝘴𝘪𝘥𝘦 𝘮𝘦
-
-* 𝘚𝘵𝘢𝘵𝘶𝘴 𝘢𝘭𝘸𝘢𝘺𝘴 𝘰𝘯 𝘣𝘶𝘴𝘺 𝘥𝘰𝘯'𝘵 𝘮𝘪𝘯𝘥 𝘪𝘵, 𝘪'𝘮 𝘕𝘖𝘛 𝘣𝘶𝘴𝘺!!
-
-𝘰𝘬𝘰𝘬 𝘪'𝘮 𝘥𝘰𝘯𝘦 𝘯𝘰𝘸
