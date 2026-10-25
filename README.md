@@ -57,7 +57,7 @@
 <p align="center">
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f8e23829-c3c4-482b-92a6-458cef810a5a" />
   
-✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦ ![STRAWPAGE](https://img.shields.io/badge/♡_STRAWPAGE_♡-A02A24?style=for-the-badge&labelColor=fecdeb&color=fecdeb) ![PRONOUNS](https://img.shields.io/badge/♡_PRONOUNS_PAGE_♡-A02A24?style=for-the-badge&labelColor=f3e9f4&color=f3e9f4) ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
+✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦ ![STRAWPAGE](https://img.shields.io/badge/♡_STRAWPAGE_♡-A02A24?style=for-the-badge&labelColor=fecdeb&color=fecdeb) ![PRONOUNS](https://img.shields.io/badge/♡_PRONOUNS_PAGE_♡-A02A24?style=for-the-badge&labelColor=f3e9f4&color=f3e9f4) ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
 
 
   
